@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @snehaprasadd
+- 👀 I’m interested in collabrating and creating stuff
+- 🌱 I’m currently learning java,web development
+- 💞️ I’m looking to collaborate on anything worththe time
+- 📫 Reach me on prasadsneha47@gmail.com
